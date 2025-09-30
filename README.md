@@ -46,7 +46,7 @@ This series is designed to teach you:
 
 ## 🔗 Related Links
 
-- YouTube Playlist: 
+- YouTube Playlist: https://youtube.com/playlist?list=PL8WHfIxTWTXN5oZ6RX66j4-YyfEyj8aiO&si=kIPyQyPxzkfHbN6d
 - www.safabazrafshan.com
 
 ---
